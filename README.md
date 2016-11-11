@@ -3,6 +3,8 @@ Tips memilih <a href="http://fashionbajumuslim.com/couple-sarimbit/">model baju 
 
 
 Kita semua harus sadar diri dari lingkungan langsung Anda dan membuka mata Anda untuk apa yang sedang terjadi dalam hidup Anda. Anda mungkin berpikir tidak ada yang bergerak ke arah yang benar, mungkin berpikir bahwa Anda berjalan di atas treadmill dan menuju tempat. Ini mungkin merasa seperti Anda mengejar mimpi yang tampaknya di luar jangkauan, hari kerja dan malam tanpa melihat cakrawala. Anda harus ingat bahwa selama Anda membuat langkah pertama menuju mencapai tujuan Anda, Anda sudah di jalur yang benar untuk mencapai itu. Garis sukses adalah tidak pernah satu lurus, dan akan ada belokan, pasang surut, seperti roller coaster di sebuah taman hiburan. Kehidupan berperilaku dengan cara yang sama, dan mencari orang-orang yang berpikiran kuat untuk memberi mereka kesempatan seumur hidup. Jangan biarkan beberapa ketidakpastian menggelincirkan Anda dari trek Anda. Anda perlu untuk memvisualisasikan sehari-hari bagaimana hidup Anda akan dan bagaimana Anda akan mengatasi tantangan yang akan disajikan kepada Anda. Tidak ada yang suka kekecewaan, itu diberikan, tetapi Anda juga perlu untuk berkembang selama masa-masa sulit dan membiarkan diri Anda untuk belajar dari kesalahan Anda dan bergerak maju, tidak peduli apa.<br>
+Baca juga: <a href="https://www.behance.net/gallery/42790671/Best-Laptops-for-College-Students-Under-S1000">Best laptops for college under 1000 for engineering, nursing and medical students</a>
+<br>
 <img src="http://1.bp.blogspot.com/-cNForRzJxGw/Vd00Fllf7FI/AAAAAAAAYxc/B-6QB45uAy0/s1600/Aneka%2BModel%2BBaju%2BMuslim%2BCouple%2BFitria%2BStyle%2BTerbaru.jpg" />
 
 <h2>Model baju couple muslim terbaru 2017</h2>
